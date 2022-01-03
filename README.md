@@ -24,11 +24,11 @@
    
  - 3. BE RUTHLESS TO THE THINGS THAT DON’T MATTER
  - “How many have laid waste to your life when you weren’t aware of
-what you were losing, how much was wasted in pointless grief,
-foolish joy, greedy desire, and social amusements—how little of
-your own was left to you. You will realize you are dying before
-your time!”
-    ` SENECA, ON THE BREVITY OF LIFE, 3.3b 
+  what you were losing, how much was wasted in pointless grief,
+  foolish joy, greedy desire, and social amusements—how little of
+  your own was left to you. You will realize you are dying before
+  your time!”
+
    
    
 
