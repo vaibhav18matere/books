@@ -18,5 +18,5 @@
   only be happier, we will have a distinct advantage over other people who
   fail to realize they are fighting an unwinnable battle.
   
-  -2. EDUCATION IS FREEDOM
+  - 2. EDUCATION IS FREEDOM
 
