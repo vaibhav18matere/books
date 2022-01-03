@@ -12,7 +12,8 @@ is time not spent on the things we can change
 
 Serenity Prayer: “God, grant me the serenity to accept the things I cannot change, the
 courage to change the things I can, and the wisdom to know the difference.”
--  If we can focus on making clear what
+- If we can focus on making clear what
 parts of our day are within our control and what parts are not, we will not
 only be happier, we will have a distinct advantage over other people who
 fail to realize they are fighting an unwinnable battle.
+
