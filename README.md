@@ -28,6 +28,14 @@
   foolish joy, greedy desire, and social amusements—how little of
   your own was left to you. You will realize you are dying before
   your time!”
+  
+  - One of the hardest things to do in life is to say “No.” To invitations, to
+  requests, to obligations, to the stuff that everyone else is doing. Even
+  harder is saying no to certain time-consuming emotions: anger, excitement,
+  distraction, obsession, lust ETC
+  
+  - the more you say no to the things that don’t matter, the more you can say yes to the
+  things that do. It may take some hard work but this will let you live and enjoy your life—the life that you want.
 
    
    
