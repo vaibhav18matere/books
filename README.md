@@ -1,6 +1,6 @@
 # Daily Stoic
 
-## Clearity
+## Clearity 
 - 1. CONTROL AND CHOICE
 - The single most important practice in Stoic philosophy is differentiating
   between what we can change and what we can’t. What we have
@@ -19,4 +19,7 @@
   fail to realize they are fighting an unwinnable battle.
   
  - 2. EDUCATION IS FREEDOM
+ - Education—reading and meditating on the wisdom of great minds—is not
+   to be done for its own sake. It has a purpose.
+
 
