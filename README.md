@@ -1,7 +1,7 @@
 # Daily Stoic
 
 ## Clearity 
-- 1. CONTROL AND CHOICE
+- 1 JAN. CONTROL AND CHOICE
 - The single most important practice in Stoic philosophy is differentiating
   between what we can change and what we can’t. What we have
   influence over and what we do not. A flight is delayed because of weather
@@ -18,11 +18,11 @@
   only be happier, we will have a distinct advantage over other people who
   fail to realize they are fighting an unwinnable battle.
   
- - 2. EDUCATION IS FREEDOM
+ - 2 JAN. EDUCATION IS FREEDOM
  - Education—reading and meditating on the wisdom of great minds—is not
    to be done for its own sake. It has a purpose.
    
- - 3. BE RUTHLESS TO THE THINGS THAT DON’T MATTER
+ - 3 JAN. BE RUTHLESS TO THE THINGS THAT DON’T MATTER
  - “How many have laid waste to your life when you weren’t aware of
   what you were losing, how much was wasted in pointless grief,
   foolish joy, greedy desire, and social amusements—how little of
@@ -36,6 +36,12 @@
   
   - the more you say no to the things that don’t matter, the more you can say yes to the
   things that do. It may take some hard work but this will let you live and enjoy your life—the life that you want.
+  
+  - 4 JAN. THE BIG THREE
+  - Control your perceptions. 
+  - Direct your actions properly.
+  - Willingly accept what’s outside your control.
+      That’s all we need to do.
 
    
    
