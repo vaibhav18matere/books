@@ -1,7 +1,7 @@
 # Daily Stoic
 
 ## Clearity 
-- ###1 JAN. CONTROL AND CHOICE
+###1 JAN. CONTROL AND CHOICE
 - The single most important practice in Stoic philosophy is differentiating
   between what we can change and what we can’t. What we have
   influence over and what we do not. A flight is delayed because of weather
