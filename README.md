@@ -42,6 +42,15 @@
   - Direct your actions properly.
   - Willingly accept what’s outside your control.
       That’s all we need to do.
+      
+  - 5. CLARIFY YOUR INTENTIONS
+  - It’s not activity that disturbs people, but false conceptions of
+    things that drive them mad.
+  - The second habit in The 7 Habits of Highly Effective People is: begin with an
+    end in mind
+  - Law 29 of The 48 Laws of Power is: Plan All The Way To The End.
+  - Having an end in mind is no guarantee that you’ll reach it, but not having an end in mind is a
+    guarantee you won’t.
 
    
    
