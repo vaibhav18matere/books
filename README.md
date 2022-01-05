@@ -22,7 +22,7 @@
  - Education—reading and meditating on the wisdom of great minds—is not
    to be done for its own sake. It has a purpose.
    
- - 3 JAN. BE RUTHLESS TO THE THINGS THAT DON’T MATTER
+ ### 3 JAN. BE RUTHLESS TO THE THINGS THAT DON’T MATTER
  - “How many have laid waste to your life when you weren’t aware of
   what you were losing, how much was wasted in pointless grief,
   foolish joy, greedy desire, and social amusements—how little of
