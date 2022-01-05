@@ -41,9 +41,9 @@
   - Control your perceptions. 
   - Direct your actions properly.
   - Willingly accept what’s outside your control.
-      That’s all we need to do.
+    That’s all we need to do.
       
-  - 5. CLARIFY YOUR INTENTIONS
+  - 5 JAN. CLARIFY YOUR INTENTIONS
   - It’s not activity that disturbs people, but false conceptions of
     things that drive them mad.
   - The second habit in The 7 Habits of Highly Effective People is: begin with an
