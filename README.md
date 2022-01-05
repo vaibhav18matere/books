@@ -1,7 +1,7 @@
 # Daily Stoic
 
 ## Clearity 
-###1 JAN. CONTROL AND CHOICE
+### 1 JAN. CONTROL AND CHOICE
 - The single most important practice in Stoic philosophy is differentiating
   between what we can change and what we can’t. What we have
   influence over and what we do not. A flight is delayed because of weather
@@ -18,7 +18,7 @@
   only be happier, we will have a distinct advantage over other people who
   fail to realize they are fighting an unwinnable battle.
   
- - 2 JAN. EDUCATION IS FREEDOM
+ ### 2 JAN. EDUCATION IS FREEDOM
  - Education—reading and meditating on the wisdom of great minds—is not
    to be done for its own sake. It has a purpose.
    
@@ -37,13 +37,13 @@
   - the more you say no to the things that don’t matter, the more you can say yes to the
   things that do. It may take some hard work but this will let you live and enjoy your life—the life that you want.
   
-  - 4 JAN. THE BIG THREE
+  ### 4 JAN. THE BIG THREE
   - Control your perceptions. 
   - Direct your actions properly.
   - Willingly accept what’s outside your control.
     That’s all we need to do.
       
-  - 5 JAN. CLARIFY YOUR INTENTIONS
+  ### 5 JAN. CLARIFY YOUR INTENTIONS
   - It’s not activity that disturbs people, but false conceptions of
     things that drive them mad.
   - The second habit in The 7 Habits of Highly Effective People is: begin with an
