@@ -57,6 +57,16 @@
   - Have you taken the time to get clarity about who you are and what you stand for? 
   - Or are you too busy chasing  unimportant things, mimicking the wrong influences, 
   and following disappointing or unfulfilling or nonexistent paths?
+  
+   ### 7th JAN. => SEVEN CLEAR FUNCTIONS OF THE MIND
+
+ - Choice — to do and think right
+ - Refusal — of temptation
+ - Yearning — to be better
+ - Repulsion — of negativity, of bad influences, of what isn’t true
+ - Preparation — for what lies ahead or whatever may happen
+ - Purpose — our guiding principle and highest priority
+ - Assent — to be free of deception about what’s inside and outside our control (and be ready to accept the latter)
 
    
    
