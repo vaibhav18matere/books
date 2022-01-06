@@ -51,6 +51,12 @@
   - Law 29 of The 48 Laws of Power is: Plan All The Way To The End.
   - Having an end in mind is no guarantee that you’ll reach it, but not having an end in mind is a
     guarantee you won’t.
+    
+  ### 6th JAN. => WHERE, WHO, WHAT, AND WHY
+  
+  - Have you taken the time to get clarity about who you are and what you stand for? 
+  - Or are you too busy chasing  unimportant things, mimicking the wrong influences, 
+  and following disappointing or unfulfilling or nonexistent paths?
 
    
    
