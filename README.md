@@ -67,7 +67,13 @@
  - Preparation — for what lies ahead or whatever may happen
  - Purpose — our guiding principle and highest priority
  - Assent — to be free of deception about what’s inside and outside our control (and be ready to accept the latter)
+ 
+  ### 8th JAN => SEEING OUR ADDICTIONS
 
+- What we consider to be harmless indulgences can easily become fullblown addictions. ex. checking phone regularly, having coffee everyday etc.
+- We must give up many things to which we are addicted.
+- addiction is when we’ve “lost the freedom to abstain.” 
+- Let us reclaim that freedom.
    
    
 
