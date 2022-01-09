@@ -74,7 +74,10 @@
 - We must give up many things to which we are addicted.
 - addiction is when we’ve “lost the freedom to abstain.” 
 - Let us reclaim that freedom.
-   
+  
+  ###  WHAT WE CONTROL AND WHAT WE DON’T
+  
+  - 
    
 
 
