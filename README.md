@@ -77,7 +77,12 @@
   
  ### 9th JAN => WHAT WE CONTROL AND WHAT WE DON’T
   
-  - 
+- “Some things are in our control, while others are not. We control
+  our opinion, choice, desire, aversion. We don’t control our body, property, reputation,
+  position.
+  
+- You don’t control the situation, but you control what
+  you think about it. 
    
 
 
