@@ -87,6 +87,6 @@
  ### 10th JAN => IF YOU WANT TO BE STEADY
  
 - The Stoics seek steadiness, stability, and tranquility (calmness)
-- 
+- it’s about filtering the outside world through the straightener of our judgment.
 
 
