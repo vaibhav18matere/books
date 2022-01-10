@@ -84,5 +84,9 @@
 - You don’t control the situation, but you control what
   you think about it. 
    
+ ### 10th JAN => IF YOU WANT TO BE STEADY
+ 
+- The Stoics seek steadiness, stability, and tranquility (calmness)
+- 
 
 
