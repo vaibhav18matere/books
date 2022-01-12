@@ -98,4 +98,8 @@
 - Remind yourself of what is in your control and what’s not in your control. 
 - Remind yourself to focus on the former and not the latter.
 
+### 13th JAN => CIRCLE OF CONTROL
+
+- According to the Stoics, the circle of control contains just one
+thing: YOUR MIND
 
