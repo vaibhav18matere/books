@@ -89,4 +89,8 @@
 - The Stoics seek steadiness, stability, and tranquility (calmness)
 - it’s about filtering the outside world through the straightener of our judgment.
 
+### 11th JAN => IF YOU WANT TO BE UNSTEADY
+
+- Serenity and stability are results of your choices and judgment, not your environment.
+
 
