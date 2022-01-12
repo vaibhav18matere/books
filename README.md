@@ -93,4 +93,9 @@
 
 - Serenity and stability are results of your choices and judgment, not your environment.
 
+### 12th JAN => THE ONE PATH TO SERENITY
+
+- Remind yourself of what is in your control and what’s not in your control. 
+- Remind yourself to focus on the former and not the latter.
+
 
