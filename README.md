@@ -103,3 +103,16 @@
 - According to the Stoics, the circle of control contains just one
 thing: YOUR MIND
 
+### 14th JAN => CUT THE STRINGS THAT PULL YOUR MIND
+
+- Food scientists are engineering products to exploit
+your taste buds. Silicon Valley engineers are designing applications as
+addictive as gambling. The media is manufacturing stories to provoke
+outrage and anger.
+
+- Every human being is pulled by these ( gossip, fear, suspicion, lust ..)
+internal and external forces that are increasingly more powerful and harder
+to resist.
+
+- “Man is pushed by drives but pulled by values.” - Viktor Frankl (The Will to Meaning)
+
