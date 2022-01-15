@@ -116,3 +116,12 @@ to resist.
 
 - “Man is pushed by drives but pulled by values.” - Viktor Frankl (The Will to Meaning)
 
+### 15th JAN => PEACE IS IN STAYING THE COURSE
+
+- We don’t need to constantly compare ourselves
+with other people or change our mind every three seconds based on new
+information.
+
+- Tranquility and peace are found in identifying our path and in
+sticking to it: staying the course — making adjustments here and there, 
+naturally—but ignoring the distracting sirens.
