@@ -125,3 +125,9 @@ information.
 - Tranquility and peace are found in identifying our path and in
 sticking to it: staying the course — making adjustments here and there, 
 naturally—but ignoring the distracting sirens.
+
+### 16th JAN => REBOOT THE REAL WORK
+
+- There is clarity (and joy) in seeing what others can’t see, in finding
+grace and harmony in places others overlook. Isn’t that far better than
+seeing the world as some dark place?
