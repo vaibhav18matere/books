@@ -126,7 +126,11 @@ information.
 sticking to it: staying the course — making adjustments here and there, 
 naturally—but ignoring the distracting sirens.
 
-### 16th JAN => REBOOT THE REAL WORK
+### 17th JAN => REBOOT THE REAL WORK
+
+- just begin the work. The rest follows
+
+### 18th JAN => SEE THE WORLD LIKE A POET AND AN ARTIST
 
 - There is clarity (and joy) in seeing what others can’t see, in finding
 grace and harmony in places others overlook. Isn’t that far better than
