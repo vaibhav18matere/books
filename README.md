@@ -141,3 +141,7 @@ naturally—but ignoring the distracting sirens.
 - There is clarity (and joy) in seeing what others can’t see, in finding
 grace and harmony in places others overlook. Isn’t that far better than
 seeing the world as some dark place?
+
+### 19th JANUARY => WHEREVER YOU GO, THERE YOUR CHOICE IS
+
+- One thing will stay constant: our freedom of choice—both in the big picture and small picture.
