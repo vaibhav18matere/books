@@ -127,7 +127,7 @@ sticking to it: staying the course — making adjustments here and there,
 naturally—but ignoring the distracting sirens.
 
 
-### January 16th => NEVER DO ANYTHING OUT OF HABIT
+### 16th January => NEVER DO ANYTHING OUT OF HABIT
 
 - The person in training must seek to rise above
 - Ask yourself: Is this really the best way to do it? Keep improve
