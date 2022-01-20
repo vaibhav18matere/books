@@ -145,3 +145,11 @@ seeing the world as some dark place?
 ### 19th JANUARY => WHEREVER YOU GO, THERE YOUR CHOICE IS
 
 - One thing will stay constant: our freedom of choice—both in the big picture and small picture.
+
+### 20th JANUARY => REIGNITE YOUR THOUGHTS
+
+- No matter what happens, no matter how disappointing our behavior has been in the past, 
+the principles themselves remain unchanged. We can return and embrace them at any moment. 
+What happened yesterday — what happened five minutes ago — is the past. 
+We can reignite and restart whenever we like.
+...Why not do it right now?
