@@ -154,3 +154,8 @@ the principles themselves remain unchanged.
 What happened yesterday — what happened five minutes ago — is the past. 
 We can reignite and restart whenever we like.
 ...Why not do it right now?
+
+### 21th JANUARY => WISH NOT, WANT NOT
+
+- When it comes to your goals and the things you strive for, ask yourself:
+Am I in control of them or they in control of me?
