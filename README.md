@@ -146,7 +146,7 @@ seeing the world as some dark place?
 
 - One thing will stay constant: our freedom of choice—both in the big picture and small picture.
 
-### 20th JANUARY => REIGNITE YOUR THOUGHTS
+### 20th JAN => REIGNITE YOUR THOUGHTS
 
 - No matter what happens, no matter how disappointing our behavior has been in the past, 
 the principles themselves remain unchanged. 
@@ -154,6 +154,25 @@ the principles themselves remain unchanged.
 What happened yesterday — what happened five minutes ago — is the past. 
 We can reignite and restart whenever we like.
 ...Why not do it right now?
+
+### 21st JAN => A MORNING RITUAL
+
+- Many successful people have a morning ritual. meditation, exercise, journaling—just a
+few pages where they write down their thoughts, fears, hopes. In these
+cases, the point is not so much the activity itself as it is the ritualized
+reflection. The idea is to take some time to look inward and examine.
+
+### 22nd JAN => THE DAY IN REVIEW
+
+- Keep your own journal, whether it’s saved on a computer or in a little
+notebook. Take time to consciously recall the events of the previous day. 
+- Notice what contributed to your happiness
+and what detracted from it. 
+- Write down what you’d like to work on or
+quotes that you like. By making the effort to record such thoughts, you’re
+less likely to forget them. 
+- An added bonus: you’ll have a running tally to
+track your progress too.
 
 ### 21th JANUARY => WISH NOT, WANT NOT
 
