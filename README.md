@@ -174,7 +174,16 @@ less likely to forget them.
 - An added bonus: you’ll have a running tally to
 track your progress too.
 
-### 21th JANUARY => WISH NOT, WANT NOT
+### 23rd JAN => THE TRUTH ABOUT MONEY
+
+### 24th JAN => PUSH FOR DEEP UNDERSTANDING
+
+- "I learned to read carefully and not be satisfied
+with a rough understanding of the whole, and not to agree too
+quickly with those who have a lot to say about something."
+
+<!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
 Am I in control of them or they in control of me?
+ -->
