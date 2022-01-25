@@ -182,6 +182,12 @@ track your progress too.
 with a rough understanding of the whole, and not to agree too
 quickly with those who have a lot to say about something."
 
+### 25th JAN => THE ONLY PRIZE
+
+- The more things we desire and the more we have to do to earn or attain
+those achievements, the less we actually enjoy our lives—and the less free
+we are.
+
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
