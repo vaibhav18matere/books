@@ -194,6 +194,8 @@ we are.
 - have a mantra and use it to find the clarity you crave.
 
 ### 27th JAN => THE THREE AREAS OF TRAINING
+
+- (a) desires & aversions (2) impulses to act & not to act (3) freedom from deception & composure
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
