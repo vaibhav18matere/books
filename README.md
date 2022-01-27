@@ -188,6 +188,12 @@ quickly with those who have a lot to say about something."
 those achievements, the less we actually enjoy our lives—and the less free
 we are.
 
+### 26th JAN => THE POWER OF A MANTRA
+
+- Mantra = “sacred utterance” allows us to block out everything else while we focus.
+- have a mantra and use it to find the clarity you crave.
+
+### 27th JAN => THE THREE AREAS OF TRAINING
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
