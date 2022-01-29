@@ -203,7 +203,7 @@ seeing the world as some dark place?
 - Pick someone, watch what they do (and what they don’t do), and do
   your best to do the same.
 
-### ### 29th JAN => KEEP IT SIMPLE
+### 29th JAN => KEEP IT SIMPLE
 
 - At every moment keep a sturdy mind on the task at hand.
 
