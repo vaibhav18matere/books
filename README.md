@@ -220,6 +220,9 @@ seeing the world as some dark place?
   possible to live an abundant and devout life—for, if you keep
   watch over these things, the gods won’t ask for more.
 
+- We don’t need to get lost in a thousand other distractions or in other people’s business.
+
+- Find clarity in the simplicity of doing your job today
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
