@@ -149,44 +149,44 @@ seeing the world as some dark place?
 ### 20th JAN => REIGNITE YOUR THOUGHTS
 
 - No matter what happens, no matter how disappointing our behavior has been in the past, 
-the principles themselves remain unchanged. 
+  the principles themselves remain unchanged. 
 - We can return and embrace them at any moment. 
-What happened yesterday — what happened five minutes ago — is the past. 
-We can reignite and restart whenever we like.
-...Why not do it right now?
+  What happened yesterday — what happened five minutes ago — is the past. 
+  We can reignite and restart whenever we like.
+  ...Why not do it right now?
 
 ### 21st JAN => A MORNING RITUAL
 
 - Many successful people have a morning ritual. meditation, exercise, journaling—just a
-few pages where they write down their thoughts, fears, hopes. In these
-cases, the point is not so much the activity itself as it is the ritualized
-reflection. The idea is to take some time to look inward and examine.
+  few pages where they write down their thoughts, fears, hopes. In these
+  cases, the point is not so much the activity itself as it is the ritualized
+  reflection. The idea is to take some time to look inward and examine.
 
 ### 22nd JAN => THE DAY IN REVIEW
 
 - Keep your own journal, whether it’s saved on a computer or in a little
-notebook. Take time to consciously recall the events of the previous day. 
+  notebook. Take time to consciously recall the events of the previous day. 
 - Notice what contributed to your happiness
-and what detracted from it. 
+  and what detracted from it. 
 - Write down what you’d like to work on or
-quotes that you like. By making the effort to record such thoughts, you’re
-less likely to forget them. 
+  quotes that you like. By making the effort to record such thoughts, you’re
+  less likely to forget them. 
 - An added bonus: you’ll have a running tally to
-track your progress too.
+  track your progress too.
 
 ### 23rd JAN => THE TRUTH ABOUT MONEY
 
 ### 24th JAN => PUSH FOR DEEP UNDERSTANDING
 
 - "I learned to read carefully and not be satisfied
-with a rough understanding of the whole, and not to agree too
-quickly with those who have a lot to say about something."
+  with a rough understanding of the whole, and not to agree too
+  quickly with those who have a lot to say about something."
 
 ### 25th JAN => THE ONLY PRIZE
 
 - The more things we desire and the more we have to do to earn or attain
-those achievements, the less we actually enjoy our lives—and the less free
-we are.
+  those achievements, the less we actually enjoy our lives—and the less free
+  we are.
 
 ### 26th JAN => THE POWER OF A MANTRA
 
@@ -196,6 +196,30 @@ we are.
 ### 27th JAN => THE THREE AREAS OF TRAINING
 
 - (a) desires & aversions (2) impulses to act & not to act (3) freedom from deception & composure
+
+### 28th JAN => WATCHING THE WISE
+
+- Who that person will be for you is up to you? 
+- Pick someone, watch what they do (and what they don’t do), and do
+  your best to do the same.
+
+### ### 29th JAN => KEEP IT SIMPLE
+
+- At every moment keep a sturdy mind on the task at hand.
+
+- Doing it with strict and simple dignity,
+  affection, freedom, and justice—giving yourself a break from all
+  other considerations.
+
+- You can do this if you approach each task as
+  if it is your last, giving up every distraction, emotional subversion
+  of reason, and all drama, vanity, and complaint over your fair
+  share.
+
+- You can see how mastery over a few things makes it
+  possible to live an abundant and devout life—for, if you keep
+  watch over these things, the gods won’t ask for more.
+
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
