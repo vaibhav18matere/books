@@ -223,6 +223,16 @@ seeing the world as some dark place?
 - We don’t need to get lost in a thousand other distractions or in other people’s business.
 
 - Find clarity in the simplicity of doing your job today
+
+### 30th JAN => YOU DON’T HAVE TO STAY ON TOP OF EVERYTHING
+
+- If you wish to improve, be content to appear clueless or stupid in
+  irrelevant matters/situations/topics.
+
+## PASSIONS AND EMOTIONS
+
+### 1st FEB => FOR THE HOT-HEADED MAN
+
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
