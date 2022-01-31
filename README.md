@@ -229,6 +229,12 @@ seeing the world as some dark place?
 - If you wish to improve, be content to appear clueless or stupid in
   irrelevant matters/situations/topics.
 
+### 31st JAN => PHILOSOPHY AS MEDICINE OF THE SOUL
+
+- Stoicism is designed to be medicine for the soul. 
+- It relieves us of the vulnerabilities of modern life. It restores us with the vigor we need to thrive
+  in life. Check in with it today, and let it do its healing.
+
 ## PASSIONS AND EMOTIONS
 
 ### 1st FEB => FOR THE HOT-HEADED MAN
