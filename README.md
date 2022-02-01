@@ -238,7 +238,10 @@ seeing the world as some dark place?
 ## PASSIONS AND EMOTIONS
 
 ### 1st FEB => FOR THE HOT-HEADED MAN
-
+- Strength is the ability to maintain a hold of oneself. 
+- Strength is being the person who never gets mad, who cannot be rattled, 
+   because they are in control of
+   their passions—rather than "controlled by" their passions.
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
