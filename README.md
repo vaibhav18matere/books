@@ -238,10 +238,24 @@ seeing the world as some dark place?
 ## PASSIONS AND EMOTIONS
 
 ### 1st FEB => FOR THE HOT-HEADED MAN
+
 - Strength is the ability to maintain a hold of oneself. 
 - Strength is being the person who never gets mad, who cannot be rattled, 
    because they are in control of
    their passions—rather than "controlled by" their passions.
+   
+ ### 2nd FEB => A PROPER FRAME OF MIND
+ 
+ - We would never let another person jerk us around the way we let our
+  impulses do. It’s time we start seeing it that way — that we’re not puppets
+  that can be made to dance this way or that way just because we feel like it.
+  
+ - We should be the ones in control, not our emotions, because we are
+  independent, self-sufficient people.
+  
+### 3rd FEB => THE SOURCE OF YOUR ANXIETY
+
+- when you find yourself getting anxious, ask yourself: Is my anxiety doing me any good ?
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
