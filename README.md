@@ -261,6 +261,11 @@ seeing the world as some dark place?
 
 - “Invincible is the one who cannot be upset by anything
 outside their reasoned choice”
+
+### 5th FEB => STEADY YOUR IMPULSES
+
+- Think before you act
+
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
