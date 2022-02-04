@@ -256,6 +256,11 @@ seeing the world as some dark place?
 ### 3rd FEB => THE SOURCE OF YOUR ANXIETY
 
 - when you find yourself getting anxious, ask yourself: Is my anxiety doing me any good ?
+
+### 4th FEB => ON BEING INVINCIBLE
+
+- “Invincible is the one who cannot be upset by anything
+outside their reasoned choice”
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
