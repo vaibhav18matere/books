@@ -266,6 +266,12 @@ outside their reasoned choice”
 
 - Think before you act
 
+### 6th FEB => FEAR IS A SELF-FULFILLING PROPHECY
+
+Prophecy - a prediction of what will happen in the future)
+
+- The combination of power, fear, and mania can be deadly.
+
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
