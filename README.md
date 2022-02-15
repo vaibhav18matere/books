@@ -266,12 +266,57 @@ outside their reasoned choice”
 
 - Think before you act
 
-### 6th FEB => FEAR IS A SELF-FULFILLING PROPHECY
+### 6th FEB => DON’T SEEK OUT STRIFE
+
+- We’re afraid of being still, so we seek out strife and action as a
+distraction.
+
+### 7th FEB => FEAR IS A SELF-FULFILLING PROPHECY
 
 Prophecy - a prediction of what will happen in the future)
 
 - The combination of power, fear, and mania can be deadly.
 
+### 8th FEB => DID THAT MAKE YOU FEEL BETTER?
+
+- The next time someone gets upset near you—crying, yelling, breaking
+something, being pointed or cruel—watch how quickly this statement
+will stop them cold: “I hope this is making you feel better.”
+
+### 9th FEB => YOU DON’T HAVE TO HAVE AN OPINION
+
+- “We have the power to hold no opinion about a thing and to not let
+it upset our state of mind—for things have no natural power to
+shape our judgments.”
+
+- It is possible to hold no opinion about a negative thing.
+
+### 10th FEB => ANGER IS BAD FUEL
+
+### 11th FEB => HERO OR NERO?
+
+### 12th FEB => PROTECT YOUR PEACE OF MIND
+
+- Don’t be afraid to make a change—a big one
+-
+### 13th FEB -> PLEASURE CAN BECOME PUNISHMENT
+
+- “Whenever you get an impression of some pleasure, as with any
+impression, guard yourself from being carried away by it, let it
+await your action, give yourself a pause. 
+- After that, bring to mind
+both times, first when you have enjoyed the pleasure and later
+when you will regret it and hate yourself. 
+- Then compare to those the joy and satisfaction you’d feel for abstaining altogether.
+- However, if a seemingly appropriate time arises to act on it, don’t
+be overcome by its comfort, pleasantness, and allure—but against
+all of this, how much better the consciousness of conquering it.”
+—EPICTETUS, ENCHIRIDION.
+
+### 14th FEB => THINK BEFORE YOU ACT
+
+### 15th FEB => 
+The thing that provoked you wasn’t real—but your reaction was.
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
