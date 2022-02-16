@@ -315,7 +315,7 @@ all of this, how much better the consciousness of conquering it.”
 
 ### 14th FEB => THINK BEFORE YOU ACT
 
-### 15th FEB => The thing that provoked you wasn’t real—but your reaction was.
+### 15th FEB => THE THING THAT PROVOKED YOU WASN'T REAL - BUT YOUR REACTION WAS.
 
 ### 16th FEB => DON’T MAKE THINGS HARDER THAN THEY NEED TO BE
 <!-- ### 21th FEB => WISH NOT, WANT NOT
