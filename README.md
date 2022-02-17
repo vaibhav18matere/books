@@ -320,7 +320,7 @@ all of this, how much better the consciousness of conquering it.”
 
 ### 16th FEB => DON’T MAKE THINGS HARDER THAN THEY NEED TO BE
 
-### 17th JAN => THE ENEMY OF HAPPINESS
+### 17th FEB => THE ENEMY OF HAPPINESS
 
 - Eagerly anticipating some future event, passionately imagining
 something you desire, looking forward to some happy scenario - ... as
