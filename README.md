@@ -328,6 +328,12 @@ pleasurable as these activities might seem, they ruin your chance at
 happiness here and now.
 
 - Those are conditional happiness !
+
+### 18th FEB => PREPARE FOR THE STORM
+
+- If we don’t have a plan, if we never learned how to put up the storm
+windows, we will be at the mercy of external—and internal—
+elements.
 <!-- ### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
