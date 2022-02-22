@@ -334,8 +334,16 @@ happiness here and now.
 - If we don’t have a plan, if we never learned how to put up the storm
 windows, we will be at the mercy of external—and internal—
 elements.
-<!-- ### 21th FEB => WISH NOT, WANT NOT
+
+### 19th FEB => THE BANQUET OF LIFE
+### 20th FEB => THE GRAND PARADE OF DESIRE
+
+### 21th FEB => WISH NOT, WANT NOT
 
 - When it comes to your goals and the things you strive for, ask yourself:
 Am I in control of them or they in control of me?
- -->
+ 
+ ### 22nd FEB => WHAT’S BETTER LEFT UNSAID
+ 
+ - It’s easy to act—to just dive in. It’s harder to stop, to pause, to think: No,
+I’m not sure I need to do that yet. I’m not sure I am ready.
