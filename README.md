@@ -347,3 +347,13 @@ Am I in control of them or they in control of me?
  
  - It’s easy to act—to just dive in. It’s harder to stop, to pause, to think: No,
 I’m not sure I need to do that yet. I’m not sure I am ready.
+
+### 23rd FEB => CIRCUMSTANCES HAVE NO CARE FOR OUR FEELINGS
+
+- “You shouldn’t give circumstances the power to rouse anger, for
+they don’t care at all.”
+
+### 24th FEB => THE REAL SOURCE OF HARM
+
+- If that same event happened to us at
+different points in our lifetime, we might have very different reactions.
