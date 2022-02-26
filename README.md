@@ -359,3 +359,22 @@ they don’t care at all.”
 different points in our lifetime, we might have very different reactions.
 
 ### 25th FEB => THE SMOKE AND DUST OF MYTH
+
+### 26th FEB => TO EACH HIS OWN
+
+- “Another has done me wrong? Let him see to it. He has his own
+tendencies, and his own affairs. What I have now is what the
+common nature has willed, and what I endeavor to accomplish
+now is what my nature wills.”
+
+### 27th FEB => CULTIVATING INDIFFERENCE WHERE OTHERS GROW
+PASSION
+
+### 28th FEB => WHEN YOU LOSE CONTROL
+
+- “The soul is like a bowl of water, and our impressions are like the
+ray of light falling upon the water. When the water is troubled, it
+appears that the light itself is moved too, but it isn’t. So, when a
+person loses their composure it isn’t their skills and virtues that
+are troubled, but the spirit in which they exist, and when that spirit
+calms down so do those things.”
