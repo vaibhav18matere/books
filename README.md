@@ -387,9 +387,7 @@ time (right now, to boot).
 
 - “Don’t set your heart on so many things.” 
 -  Focus. Prioritize. 
--  
 -  Train your mind to ask: Do I need this thing? What will happen if
    I do not get it? Can I make do without it?
-   
 - The answers to these questions will help you relax, help you cut out all
    the needless things that make you busy—too busy to be balanced or happy.
