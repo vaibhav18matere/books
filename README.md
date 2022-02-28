@@ -378,3 +378,18 @@ appears that the light itself is moved too, but it isn’t. So, when a
 person loses their composure it isn’t their skills and virtues that
 are troubled, but the spirit in which they exist, and when that spirit
 calms down so do those things.”
+
+### 29th FEB => YOU CAN’T ALWAYS (BE) GET(TING) WHAT YOU WANT
+
+- we can have it all” is the mantra of our modern lives. Work, family,
+purpose, success, leisure time—we want all of this, at the same
+time (right now, to boot).
+
+- “Don’t set your heart on so many things.” 
+-  Focus. Prioritize. 
+-  
+-  Train your mind to ask: Do I need this thing? What will happen if
+   I do not get it? Can I make do without it?
+   
+- The answers to these questions will help you relax, help you cut out all
+   the needless things that make you busy—too busy to be balanced or happy.
