@@ -391,3 +391,9 @@ time (right now, to boot).
    I do not get it? Can I make do without it?
 - The answers to these questions will help you relax, help you cut out all
    the needless things that make you busy—too busy to be balanced or happy.
+
+## Awareness
+### 1 MARCH => WHERE PHILOSOPHY BEGINS
+
+- we begin our journey into
+philosophy when we become aware of the ability to analyze our own minds.
