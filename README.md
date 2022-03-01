@@ -236,7 +236,7 @@ seeing the world as some dark place?
 - It relieves us of the vulnerabilities of modern life. It restores us with the vigor we need to thrive
   in life. Check in with it today, and let it do its healing.
 
-## PASSIONS AND EMOTIONS
+## Passions and emotions
 
 ### 1st FEB => FOR THE HOT-HEADED MAN
 
