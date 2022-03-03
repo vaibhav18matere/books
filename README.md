@@ -393,7 +393,25 @@ time (right now, to boot).
    the needless things that make you busy—too busy to be balanced or happy.
 
 ## Awareness
-### 1 MARCH => WHERE PHILOSOPHY BEGINS
+### 1st MARCH => WHERE PHILOSOPHY BEGINS
 
 - we begin our journey into
 philosophy when we become aware of the ability to analyze our own minds.
+
+### 2nd MARCH => ACCURATE SELF-ASSESSMENT
+- “Above all, it is necessary for a person to have a true self-estimate,
+for we commonly think we can do more than we really can.”
+- it is a great
+failing “to see yourself as more than you are
+- it is equally damaging to “value yourself at
+less than your true worth.”
+
+### 3rd MARCH => (DIS)INTEGRATION
+
+- We’re all complicated people. We have multiple sides to ourselves—
+conflicting wants, desires, and fears. 
+- The outside world is no less
+confusing and contradictory. If we’re not careful, all these forces—pushing
+and pulling—will eventually tear us apart.
+- If we do not focus on our internal integration—on self-awareness—we
+risk external disintegration.
