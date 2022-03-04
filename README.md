@@ -299,7 +299,7 @@ shape our judgments.”
 ### 12th FEB => PROTECT YOUR PEACE OF MIND
 
 - Don’t be afraid to make a change—a big one
--
+- 
 ### 13th FEB -> PLEASURE CAN BECOME PUNISHMENT
 
 - “Whenever you get an impression of some pleasure, as with any
@@ -381,11 +381,14 @@ calms down so do those things.”
 
 ### 29th FEB => YOU CAN’T ALWAYS (BE) GET(TING) WHAT YOU WANT
 
-- we can have it all” is the mantra of our modern lives. Work, family, purpose, success, leisure time—we want all of this, at the same time (right now, to boot).
+- we can have it all” is the mantra of our modern lives. Work, family, purpose, success, leisure time—
+we want all of this, at the same time (right now, to boot).
 - “Don’t set your heart on so many things.” 
 -  Focus. Prioritize. 
--  Train your mind to ask: Do I need this thing? What will happen if I do not get it? Can I make do without it?
-- The answers to these questions will help you relax, help you cut out all the needless things that make you busy—too busy to be balanced or happy.
+-  Train your mind to ask: Do I need this thing? What will happen if I do not get it
+Can I make do without it?
+- The answers to these questions will help you relax, help you cut out all the needless things 
+that make you busy—too busy to be balanced or happy.
 
 ## Awareness
 ### 1st MARCH => WHERE PHILOSOPHY BEGINS
@@ -394,14 +397,16 @@ calms down so do those things.”
 philosophy when we become aware of the ability to analyze our own minds.
 
 ### 2nd MARCH => ACCURATE SELF-ASSESSMENT
-- “Above all, it is necessary for a person to have a true self-estimate, for we commonly think we can do more than we really can.”
+- “Above all, it is necessary for a person to have a true self-estimate, for we commonly think 
+we can do more than we really can.”
 - it is a great failing “to see yourself as more than you are
 - it is equally damaging to “value yourself at less than your true worth.”
 
 ### 3rd MARCH => (DIS)INTEGRATION
 
 - We’re all complicated people. We have multiple sides to ourselves— conflicting wants, desires, and fears. 
-- The outside world is no less confusing and contradictory. If we’re not careful, all these forces—pushing and pulling—will eventually tear us apart.
+- The outside world is no less confusing and contradictory. If we’re not careful, 
+all these forces—pushing and pulling—will eventually tear us apart.
 - If we do not focus on our internal integration—on self-awareness—werisk external disintegration.
 
 ### 4th MArch => AWARENESS IS FREEDOM
