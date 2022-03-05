@@ -409,7 +409,25 @@ we can do more than we really can.”
 all these forces—pushing and pulling—will eventually tear us apart.
 - If we do not focus on our internal integration—on self-awareness—werisk external disintegration.
 
-### 4th MArch => AWARENESS IS FREEDOM
+### 4th MARCH => AWARENESS IS FREEDOM
 
 - Often powerful people are slaves to their money, to their positions, to their mistresses
 - We see this slavery all the time, question is "Are you as free as you think?"
+
+### 5th MARCH => CUTTING BACK ON THE COSTLY
+
+- “So, concerning the things we pursue, and for which we vigorously
+exert ourselves, we owe this consideration—either there is nothing
+useful in them, or most aren’t useful. Some of them are
+superfluous, while others aren’t worth that much. But we don’t
+discern this and see them as free, when they cost us dearly.”
+
+- Even what we get for free has a cost, if only in what we pay
+to store it—in our garages and in our minds. 
+
+- As you walk past your
+possessions today, ask yourself: Do I need this? Is it superfluous? What’s
+this actually worth? What is it costing me?
+
+- You might be surprised by the answers and how much we’ve been
+paying without even knowing it.
