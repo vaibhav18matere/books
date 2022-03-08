@@ -452,7 +452,7 @@ about anything.
 aware of everything that’s going on,so we can make the right decision.
 
 
-### 7th MARCH => DON’T UNINTENTIONALLY HAND OVER YOUR FREEDOM
+### 8th MARCH => DON’T UNINTENTIONALLY HAND OVER YOUR FREEDOM
 
 - “If a person gave away your body to some passerby, you’d be
 furious. Yet you hand over your mind to anyone who comes along,
