@@ -431,3 +431,14 @@ this actually worth? What is it costing me?
 
 - You might be surprised by the answers and how much we’ve been
 paying without even knowing it.
+
+### 6th MARCH => DON’T TELL YOURSELF STORIES
+
+- “In public avoid talking often and excessively about your
+accomplishments and dangers, for however much you enjoy
+recounting your dangers, it’s not so pleasant for others to hear
+about your affairs.”
+
+- “Narrative Fallacy” — The tendency to assemble unrelated events of the past into stories.
+- Try your best not to create this fantasy bubble—live in what’s real.
+- Listen and connect with people, don’t perform for them.
