@@ -442,3 +442,11 @@ about your affairs.”
 - “Narrative Fallacy” — The tendency to assemble unrelated events of the past into stories.
 - Try your best not to create this fantasy bubble—live in what’s real.
 - Listen and connect with people, don’t perform for them.
+
+### 7th MARCH => DON’T TRUST THE SENSES
+
+- Because our senses are often wrong, our emotions overly alarmed, our
+projections overly optimistic, we’re better off not rushing into conclusions
+about anything. 
+- We can take a beat with everything we do and become
+aware of everything that’s going on,so we can make the right decision.
