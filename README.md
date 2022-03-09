@@ -458,3 +458,15 @@ aware of everything that’s going on,so we can make the right decision.
 furious. Yet you hand over your mind to anyone who comes along,
 so they may abuse you, leaving it disturbed and troubled—have
 you no shame in that?”
+
+
+### 9th MARCH => FIND THE RIGHT SCENE
+
+- “You are the average of the five people
+you spend the most time with.”
+
+- Ask yourself about the people you meet and spend time with: Are
+they making me better? Do they encourage me to push forward and hold me
+accountable? Or do they drag me down to their level? Now, with this in
+mind, ask the most important question: Should I spend more or less time
+with these folks?
