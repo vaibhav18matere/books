@@ -470,3 +470,13 @@ they making me better? Do they encourage me to push forward and hold me
 accountable? Or do they drag me down to their level? Now, with this in
 mind, ask the most important question: Should I spend more or less time
 with these folks?
+
+### 10th MARCH =>  FIND YOURSELF A CATO
+
+- Cato—a great and noble person we can allow into our minds 
+ and use to guide our actions, even when they’re not physically present.
+- Who can stand and witness to our behavior. 
+- Someone who can quietly admonish us if we are
+considering doing something lazy, dishonest, or selfish.
+- And if we do it right, and live our lives in such a way, perhaps we can
+serve as someone else’s Cato or indifferent spectator when they need it.
