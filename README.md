@@ -480,3 +480,13 @@ with these folks?
 considering doing something lazy, dishonest, or selfish.
 - And if we do it right, and live our lives in such a way, perhaps we can
 serve as someone else’s Cato or indifferent spectator when they need it.
+
+### 11th MARCH => LIVING WITHOUT RESTRICTION
+
+- “The unrestricted person, who has in hand what they will in all
+events, is free. But anyone who can be restricted, coerced, or
+pushed into something against what they will is a slave.”
+
+- “Slavery resides under marble and gold.” Too
+many successful people are prisoners in jails of their own making. Is that
+what you want? Is that what you’re working hard toward? Let’s hope not.
