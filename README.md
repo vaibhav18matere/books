@@ -490,3 +490,14 @@ pushed into something against what they will is a slave.”
 - “Slavery resides under marble and gold.” Too
 many successful people are prisoners in jails of their own making. Is that
 what you want? Is that what you’re working hard toward? Let’s hope not.
+
+### 12th MARCH => SEEING THINGS AS THE PERSON AT FAULT DOES
+
+- Nobody thinks they’re wrong, even when they are.
+
+### 13th MARCH => ONE DAY IT WILL ALL MAKE SENSE
+“Part of the reason we fight against the things that happen is that we’re so
+focused on our plan that we forget that there might be a bigger plan we
+don’t know about.”
+
+
