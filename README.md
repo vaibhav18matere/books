@@ -500,4 +500,15 @@ what you want? Is that what you’re working hard toward? Let’s hope not.
 focused on our plan that we forget that there might be a bigger plan we
 don’t know about.”
 
+### 14th MARCH = SELF-DECEPTION IS OUR ENEMY
 
+- “It is impossible for a person to begin to learn what
+he thinks he already knows.” 
+
+- Today, we will be unable to improve, unable to learn, unable to earn the 
+respect of others if we think we’re already
+perfect, a genius admired far and wide. 
+
+- In this sense, ego and self-deception
+are the enemies of the things we wish to have because we delude ourselves
+into believing that we already possess them.
