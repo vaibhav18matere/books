@@ -512,3 +512,11 @@ perfect, a genius admired far and wide.
 - In this sense, ego and self-deception
 are the enemies of the things we wish to have because we delude ourselves
 into believing that we already possess them.
+
+### 15th MARCH THE PRESENT IS ALL WE POSSESS
+
+- Today, notice how often you look for more.That is, wanting the past to
+be more than what it was.or wanting
+the future to unfold exactly as you expect (with hardly a thought as to how
+that might affect other people).
+- When you do this, you’re neglecting the present moment.
