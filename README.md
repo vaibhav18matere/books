@@ -513,10 +513,29 @@ perfect, a genius admired far and wide.
 are the enemies of the things we wish to have because we delude ourselves
 into believing that we already possess them.
 
-### 15th MARCH THE PRESENT IS ALL WE POSSESS
+### 15th MARCH => THE PRESENT IS ALL WE POSSESS
 
 - Today, notice how often you look for more.That is, wanting the past to
 be more than what it was.or wanting
 the future to unfold exactly as you expect (with hardly a thought as to how
 that might affect other people).
 - When you do this, you’re neglecting the present moment.
+
+### 16th MARCH => THAT SACRED PART OF YOU
+
+- The fact that you can think, the fact that you can read this book, the fact
+that you are able to reason in and out of situations — all of this is what
+gives you the ability to improve your circumstances and become better. 
+
+- It’s important to appreciate this ability, because it’s a genuine ability. Not everyone is so lucky.
+
+- Seriously, what you take for granted, others wouldn’t even think to
+dream of.
+
+- Take a little time today to remember that you’re blessed with the
+capacity to use logic and reason to navigate situations and circumstances.
+
+- This gives you unthinkable power to alter your circumstances and the
+circumstances of others. 
+
+- And remember that with power comes responsibility.
