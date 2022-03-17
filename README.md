@@ -539,3 +539,11 @@ capacity to use logic and reason to navigate situations and circumstances.
 circumstances of others. 
 
 - And remember that with power comes responsibility.
+
+### 17th MARCH => THE BEAUTY OF CHOICE
+
+- It’s easy to confuse the image we present to the world for who we
+actually are, especially when media messaging deliberately blurs that
+distinction.
+
+- Not how things appear, but what effort, activity, and choices they are a result of.
