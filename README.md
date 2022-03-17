@@ -547,3 +547,8 @@ actually are, especially when media messaging deliberately blurs that
 distinction.
 
 - Not how things appear, but what effort, activity, and choices they are a result of.
+
+### 18th MARCH => IMPOSSIBLE WITHOUT YOUR CONSENT
+
+- We can’t blame other people for making us feel stressed or frustrated 
+any more than we can blame them for our jealousy. The cause is within us. 
