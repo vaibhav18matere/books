@@ -563,4 +563,19 @@ comes from us, from our labels or our expectations.
 we can change our entitlement and decide to accept
 and love what’s happening around us.
 
+### 20th MARCH => READY AND AT HOME
 
+- We’d be crazy to want to face
+difficulty in life. But we’d be equally crazy to pretend that it isn’t going to
+happen. 
+
+- Which is why when it knocks on our door — as it very well may this
+morning — let’s make sure we’re prepared to answer!
+
+### 21st MARCH => THE BEST RETREAT IS IN HERE, NOT OUT THERE
+
+- Are you looking forward to the weekend so you can have some peace and quiet? 
+- Maybe, you think, after things settle down or after I get this over with. 
+- But how often has that ever actually worked?
+
+- “Wherever you go, there you are.”
