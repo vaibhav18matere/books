@@ -552,3 +552,15 @@ distinction.
 
 - We can’t blame other people for making us feel stressed or frustrated 
 any more than we can blame them for our jealousy. The cause is within us. 
+
+### 19th MARCH => TIMELESS WISDOM
+
+- “The cause of my irritation is not in this person but in me.”
+
+- The cause of our notion that something is bad : that
+comes from us, from our labels or our expectations. 
+- Just as easily, we can change those labels; 
+we can change our entitlement and decide to accept
+and love what’s happening around us.
+
+
