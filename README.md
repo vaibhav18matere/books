@@ -579,3 +579,11 @@ morning — let’s make sure we’re prepared to answer!
 - But how often has that ever actually worked?
 
 - “Wherever you go, there you are.”
+
+### 22nd MARCH => THE SIGN OF TRUE EDUCATION
+
+- You don’t need to step into a classroom to understand the basic, 
+fundamental reality of nature and of our proper role in it. 
+
+- Begin with awareness and reflection. Not just once,
+but every single second of every single day.
