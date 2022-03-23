@@ -593,4 +593,17 @@ but every single second of every single day.
 - It’s better to look at how greed and vices might be having a similar effect in
 your own life. What lapses in judgment might your vices be causing you?
 What “sicknesses” might you have?
+
 - And how can your rational mind step in and regulate them?
+
+### 24th MARCH => THERE IS PHILOSOPHY IN EVERYTHING
+
+- Epictetus means about the study of Philosophy. Study, yes,
+but go live your life as well. It’s the only way that you’ll actually
+understand whether you took any of the teachings to heart.
+
+- Be aware of that today when you’re going to work, going on a date,
+deciding whom to vote for, calling your parents in the evening, waving to
+your neighbor as you walk to your door, tipping the delivery man, saying
+goodnight to someone you love. All of that is philosophy. All of it is
+experience that brings meaning to the words.
