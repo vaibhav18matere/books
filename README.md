@@ -587,3 +587,10 @@ fundamental reality of nature and of our proper role in it.
 
 - Begin with awareness and reflection. Not just once,
 but every single second of every single day.
+
+### 23rd MARCH => THE STRAITJACKETED SOUL
+
+- It’s better to look at how greed and vices might be having a similar effect in
+your own life. What lapses in judgment might your vices be causing you?
+What “sicknesses” might you have?
+- And how can your rational mind step in and regulate them?
