@@ -607,3 +607,8 @@ deciding whom to vote for, calling your parents in the evening, waving to
 your neighbor as you walk to your door, tipping the delivery man, saying
 goodnight to someone you love. All of that is philosophy. All of it is
 experience that brings meaning to the words.
+
+### 25th MARCH => WEALTH AND FREEDOM ARE FREE
+
+- “. . . freedom isn’t secured by filling up on your heart’s desire but
+by removing your desire.”
