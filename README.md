@@ -619,3 +619,8 @@ by removing your desire.”
 - Learn what underpins this philosophy you’re studying,
 how the body and mind tick. Understand not only your ruling reason—the
 watchmen—but whoever and whatever rules that too.
+
+### 27th MARCH => PAY WHAT THINGS ARE WORTH
+
+- The good things in life cost what they cost. The
+unnecessary things are not worth it at any price.
