@@ -624,3 +624,18 @@ watchmen—but whoever and whatever rules that too.
 
 - The good things in life cost what they cost. The
 unnecessary things are not worth it at any price.
+
+### 28th MARCH => COWARDICE AS A DESIGN PROBLEM
+
+- Don’t try to make it up on the fly. Have a plan.
+
+### 29th MARCH => WHY DO YOU NEED TO IMPRESS THESE PEOPLE AGAIN?
+
+- Suddenly we’re wearing uncomfortable, ridiculous clothes we’ve
+been told are cool, eating differently, talking differently, eagerly waiting for
+a call or text. 
+- If we did these things because we liked it, that would be one
+thing. But that’s not what it is. It’s just a means to an end—to get someone
+to give us the nod.
+
+- “We buy things we don’t need, to impress people we don’t like.”
