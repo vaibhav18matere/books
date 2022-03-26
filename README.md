@@ -671,3 +671,19 @@ how much we try to avoid them.
 
 - Uninvited guests might arrive at your home, but you don’t have to ask them to stay for
 dinner.
+
+### 3rd APRIL => DECEIVED AND DIVIDED
+
+- Our internal war is usually a result of our conflicting desires.
+
+### 4th APRIL => DON’T LET THIS GO TO YOUR HEAD
+
+- When we experience success, we must make sure that it doesn’t change
+us—that we continue to maintain our character despite the temptation not
+to. Reason must lead the way no matter what good fortune comes along.
+
+### 5th APRIL => TRUST, BUT VERIFY
+
+- ASK QUESTIONS LIKE - Is this really so bad? What do I really know about this person? Why do I have
+such strong feelings here? Is anxiety really adding much to the situation?
+What’s so special about it?
