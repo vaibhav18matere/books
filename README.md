@@ -639,3 +639,35 @@ thing. But that’s not what it is. It’s just a means to an end—to get someo
 to give us the nod.
 
 - “We buy things we don’t need, to impress people we don’t like.”
+
+### 30th MARCH => REASON IN ALL THINGS
+
+- As we examine our past behavior,
+it’s sad how often we find this to be the case—that we were not acting
+consciously or deliberately but instead by forces we did not bother to
+evaluate. 
+- It also happens that these are the instances that we’re mostly likely
+to regret.
+
+### 31st MARCH => YOU’RE A PRODUCT OF YOUR TRAINING
+
+- A mind that isn’t in control of itself, that
+doesn’t understand its power to regulate itself, will be jerked around by
+external events and unquestioned impulses.
+
+## Unbiased Thought
+
+### 1st APRIL => THE COLOR OF YOUR THOUGHTS
+
+- “Your mind will take the shape of what you frequently hold in
+thought, for the human spirit is colored by such impressions.”
+
+### 2nd APRIL => BE WARY OF WHAT YOU LET IN
+
+- We’ll inevitably be exposed to external influences at some point, no matter
+how much we try to avoid them. 
+- But we don't need to allow those influences to penetrate our minds. 
+- We have the ability to put our guard up and decide what we actually allow in. 
+
+- Uninvited guests might arrive at your home, but you don’t have to ask them to stay for
+dinner.
