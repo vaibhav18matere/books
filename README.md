@@ -612,3 +612,10 @@ experience that brings meaning to the words.
 
 - “. . . freedom isn’t secured by filling up on your heart’s desire but
 by removing your desire.”
+
+### 26th MARCH => WHAT RULES YOUR RULING REASON?
+
+- Roman satirist Juvenal is famous for this question "Who watches the watchmen?"
+- Learn what underpins this philosophy you’re studying,
+how the body and mind tick. Understand not only your ruling reason—the
+watchmen—but whoever and whatever rules that too.
