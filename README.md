@@ -687,3 +687,7 @@ to. Reason must lead the way no matter what good fortune comes along.
 - ASK QUESTIONS LIKE - Is this really so bad? What do I really know about this person? Why do I have
 such strong feelings here? Is anxiety really adding much to the situation?
 What’s so special about it?
+
+### 6th APRIL => PREPARE YOURSELF FOR NEGATIVITY
+- ... Maybe because you’ve prepared for it, you’ll
+be able to act with patience, forgiveness, and understanding.
