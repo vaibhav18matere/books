@@ -299,7 +299,7 @@ shape our judgments.”
 ### 12th FEB => PROTECT YOUR PEACE OF MIND
 
 - Don’t be afraid to make a change—a big one
-- 
+
 ### 13th FEB -> PLEASURE CAN BECOME PUNISHMENT
 
 - “Whenever you get an impression of some pleasure, as with any
