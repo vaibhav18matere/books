@@ -691,3 +691,11 @@ What’s so special about it?
 ### 6th APRIL => PREPARE YOURSELF FOR NEGATIVITY
 - ... Maybe because you’ve prepared for it, you’ll
 be able to act with patience, forgiveness, and understanding.
+
+### 7th APRIL => EXPECT TO CHANGE YOUR OPINIONS
+- We must fight our biases and preconceptions: because they
+are a liabilities.
+- Remember, if there is one core teaching at the heart of this philosophy,
+it’s that we’re not as smart and as wise as we’d like to think we are. 
+- If we ever do want to become wise, it comes from the questioning and from
+humility — not, as many would like to think, from certainty, mistrust, and arrogance.
