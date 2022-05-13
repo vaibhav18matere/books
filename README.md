@@ -700,8 +700,17 @@ it’s that we’re not as smart and as wise as we’d like to think we are.
 - If we ever do want to become wise, it comes from the questioning and from
 humility — not, as many would like to think, from certainty, mistrust, and arrogance.
 
-### 7th APRIL => THE COST OF ACCEPTING COUNTERFEITS
+### 8th APRIL => THE COST OF ACCEPTING COUNTERFEITS
 
 - “the first and greatest task of the
 philosopher is to test and separate appearances, and to act on nothing that is
 untested.”
+
+### 9th APRIL => TEST YOUR IMPRESSIONS
+
+- Part of Stoicism is cultivating the awareness that allows you to step back
+and analyze your own senses, question their accuracy, and proceed only
+with the positive and constructive ones.
+- What feels right right now doesn’t
+always stand up well over time. Hold your senses suspect. Again, trust, but
+always verify.
