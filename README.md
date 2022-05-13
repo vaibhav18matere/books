@@ -699,3 +699,9 @@ are a liabilities.
 it’s that we’re not as smart and as wise as we’d like to think we are. 
 - If we ever do want to become wise, it comes from the questioning and from
 humility — not, as many would like to think, from certainty, mistrust, and arrogance.
+
+### 7th APRIL => THE COST OF ACCEPTING COUNTERFEITS
+
+- “the first and greatest task of the
+philosopher is to test and separate appearances, and to act on nothing that is
+untested.”
