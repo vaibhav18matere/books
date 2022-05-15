@@ -714,3 +714,17 @@ with the positive and constructive ones.
 - What feels right right now doesn’t
 always stand up well over time. Hold your senses suspect. Again, trust, but
 always verify.
+
+### 10th APRIL => JUDGMENTS CAUSE DISTURBANCE
+
+- “It isn’t events themselves that disturb people, but only their
+judgments about them.”
+
+### 10th APRIL => IF YOU WANT TO LEARN, BE HUMBLE
+
+- “Throw out your conceited (excessively proud of oneself) opinions, 
+for it is impossible for a person to begin to learn what he thinks he already knows.” 
+- If you want to learn, if you want to improve your life, seeking out
+teachers, philosophers, and great books is a good start. But this approach
+will only be effective if you’re humble and ready to let go of opinions you
+already have.
