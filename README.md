@@ -720,7 +720,7 @@ always verify.
 - “It isn’t events themselves that disturb people, but only their
 judgments about them.”
 
-### 10th APRIL => IF YOU WANT TO LEARN, BE HUMBLE
+### 11th APRIL => IF YOU WANT TO LEARN, BE HUMBLE
 
 - “Throw out your conceited (excessively proud of oneself) opinions, 
 for it is impossible for a person to begin to learn what he thinks he already knows.” 
