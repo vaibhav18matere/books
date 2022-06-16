@@ -728,3 +728,9 @@ for it is impossible for a person to begin to learn what he thinks he already kn
 teachers, philosophers, and great books is a good start. But this approach
 will only be effective if you’re humble and ready to let go of opinions you
 already have.
+
+### 12th APRIL => REJECT TEMPTING GIFTS
+
+- Our attraction toward what is new and shiny can lead us into serious trouble.
+
+### 13th APRIL => LESS IS MORE
