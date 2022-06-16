@@ -740,3 +740,15 @@ contrarian. Don’t overdress your thought in fine language. Don’t
 be a person of too many words and too many deeds. . . . Be
 cheerful, not wanting outside help or the relief others might bring.
 A person needs to stand on their own, not be propped up.”
+
+### 14th APRIL => BECOMING AN EXPERT IN WHAT MATTERS
+
+- “Believe me, it’s better to produce the balance-sheet of your own
+life than that of the grain market.”
+
+- At the end of your time on this planet, what expertise is going to be
+more valuable — your understanding of matters of living and dying, or your
+knowledge of the trending things ? 
+- Which will help your children more — your
+insight into happiness and meaning, or that you followed breaking political
+news every day for thirty years ?
