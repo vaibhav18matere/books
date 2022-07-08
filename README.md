@@ -752,3 +752,12 @@ knowledge of the trending things ?
 - Which will help your children more — your
 insight into happiness and meaning, or that you followed breaking political
 news every day for thirty years ?
+
+### 15th APRIL => PAY YOUR TAXES
+
+- Everything we do has a toll attached to it.
+- Waiting around is a tax on traveling. Rumors and gossip are the taxes that
+come from acquiring a public persona. Disagreements and occasional
+frustration are taxes placed on even the happiest of relationships. Theft is a
+tax on abundance and having things that other people want. Stress and
+problems are tariffs that come attached to success. And on and on and on.
