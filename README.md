@@ -761,3 +761,12 @@ come from acquiring a public persona. Disagreements and occasional
 frustration are taxes placed on even the happiest of relationships. Theft is a
 tax on abundance and having things that other people want. Stress and
 problems are tariffs that come attached to success. And on and on and on.
+
+### 16th APRIL => OBSERVE CAUSE AND EFFECT
+- Cognitive Behavioural Therapy helps patients identify destructive patterns 
+in their thoughts and behavior so they can, over time, direct and influence them 
+in a more positive direction.
+- Become an observer of your own thoughts and the actions those thoughts provoke.
+- Where do they come from? What biases do they contain? Are they constructive or 
+destructive? Do they cause you to make mistakes or engage in behavior you later regret? 
+- Look for patterns; find where cause meets effect
