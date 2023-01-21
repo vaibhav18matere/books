@@ -771,7 +771,7 @@ in a more positive direction.
 destructive? Do they cause you to make mistakes or engage in behavior you later regret? 
 - Look for patterns; find where cause meets effect
 
-### 16th APRIL => NO HARM, NO FOUL
+### 17th APRIL => NO HARM, NO FOUL
 - something said sarcastically differs drastically from something that was pointed and mean.
 - The interpretation of a remark or a word has an immense amount of
 power. It’s the difference between a laugh and hurt feelings. The difference
@@ -780,3 +780,9 @@ between a fight breaking out and two people connecting.
 then make sure your interpretations of others’ words make that possible.
 Choose the right inference from someone’s actions or from external events,
 and it’s a lot more likely that you’ll have the right response.
+
+### 18th APRIL => OPINIONS ARE LIKE
+- Our opinion is often shaped by dogma (religious or cultural), entitlements, expectations, 
+and in some cases, ignorance.
+- But what if we let these opinions go? Let’s try weeding (ekkoptein; cutting or knocking out) them
+out of our lives so that things simply are. Not good or bad, not colored with opinion or judgment.
