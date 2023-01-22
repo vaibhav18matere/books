@@ -786,3 +786,6 @@ and it’s a lot more likely that you’ll have the right response.
 and in some cases, ignorance.
 - But what if we let these opinions go? Let’s try weeding (ekkoptein; cutting or knocking out) them
 out of our lives so that things simply are. Not good or bad, not colored with opinion or judgment.
+
+### 19th APRIL => OUR SPHERE OF IMPULSES
+- Be willing to learn from anyone and everyone, regardless of their station in life.
