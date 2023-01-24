@@ -789,3 +789,11 @@ out of our lives so that things simply are. Not good or bad, not colored with op
 
 ### 19th APRIL => OUR SPHERE OF IMPULSES
 - Be willing to learn from anyone and everyone, regardless of their station in life.
+
+### 20th APRIL => REAL GOOD IS SIMPLE
+- For centuries, people have assumed that wealth would be a wonderful
+cure-all for their unhappiness or problems. Why else would they have
+worked so hard for it? 
+- But when people actually acquired the money and status they craved, 
+they discovered it wasn’t quite what they had hoped. 
+- The same is true of so many things we covet without really thinking.
