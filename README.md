@@ -797,3 +797,16 @@ worked so hard for it?
 - But when people actually acquired the money and status they craved, 
 they discovered it wasn’t quite what they had hoped. 
 - The same is true of so many things we covet without really thinking.
+
+### 21st APRIL => DON’T LET YOUR ATTENTION SLIDE
+- “When you let your attention slide for a bit, don’t think you will get
+back a grip on it whenever you wish—instead, bear in mind that
+because of today’s mistake everything that follows will be
+necessarily worse... 
+- Is it possible to be free from error? Not by any means, but it is possible 
+to be a person always stretching to avoid error.
+- Attention matters— and in an era in which our attention is being fought  for by 
+every new app, website, article, book, tweet, and post, its value has only gone up.
+- You’ll never complete all your tasks if you allow yourself to be
+distracted with every tiny interruption. 
+- Your attention is one of your most critical resources. Don’t squander it!
