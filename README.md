@@ -810,3 +810,8 @@ every new app, website, article, book, tweet, and post, its value has only gone 
 - You’ll never complete all your tasks if you allow yourself to be
 distracted with every tiny interruption. 
 - Your attention is one of your most critical resources. Don’t squander it!
+
+### 22nd APRIL => THE MARKS OF A RATIONAL PERSON
+- 1. First, we must look inward.
+- 2. Next, we must examine ourselves critically.
+- 3. Finally, we must make our own decisions — without restraint, biases or popular notions.
