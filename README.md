@@ -815,3 +815,10 @@ distracted with every tiny interruption.
 - 1. First, we must look inward.
 - 2. Next, we must examine ourselves critically.
 - 3. Finally, we must make our own decisions — without restraint, biases or popular notions.
+
+### 23rd APRIL => THE MIND IS ALL YOURS
+- 1. The body can be severely damage by disease or injured or disabled in a sudden
+accident. It can be imprisoned or subjected to torture. 
+- 2. The breath can suddenly cease because our time has come, 
+- or because someone has taken it from us.
+- 3. But up until the very end, our mind is ours.
