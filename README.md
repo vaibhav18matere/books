@@ -822,3 +822,5 @@ accident. It can be imprisoned or subjected to torture.
 - 2. The breath can suddenly cease because our time has come, 
 - or because someone has taken it from us.
 - 3. But up until the very end, our mind is ours.
+
+### 24th APRIL => A PRODUCTIVE USE FOR CONTEMPT
