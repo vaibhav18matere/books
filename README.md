@@ -824,3 +824,7 @@ accident. It can be imprisoned or subjected to torture.
 - 3. But up until the very end, our mind is ours.
 
 ### 24th APRIL => A PRODUCTIVE USE FOR CONTEMPT
+### 25th APRIL => THERE’S NOTHING WRONG WITH BEING WRONG
+- Remember: you’re a free agent. When someone points out a legitimate
+flaw in your belief or in your actions, they’re not criticizing you. They’re
+presenting a better alternative. Accept it!
