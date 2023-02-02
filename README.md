@@ -834,3 +834,6 @@ presenting a better alternative. Accept it!
 be less daunted by them, less likely to be swayed by them.
 - Dig into your fear of death or obscurity, and what will you find? Turn
 some fancy ceremony inside out and you’ll find—what?
+### 28th APRIL => WANTS MAKE YOU A SERVANT
+- Taking the money, wanting the money — proverbially or
+literally — makes you a servant to the people who have it.
