@@ -824,16 +824,25 @@ accident. It can be imprisoned or subjected to torture.
 - 3. But up until the very end, our mind is ours.
 
 ### 24th APRIL => A PRODUCTIVE USE FOR CONTEMPT
+
 ### 25th APRIL => THERE’S NOTHING WRONG WITH BEING WRONG
 - Remember: you’re a free agent. When someone points out a legitimate
 flaw in your belief or in your actions, they’re not criticizing you. They’re
 presenting a better alternative. Accept it!
+
 ### 26th APRIL => THINGS HAPPEN IN TRAINING
+
 ### 27th APRIL => TURN IT INSIDE OUT
 - By examining situations from the inside out, we can
 be less daunted by them, less likely to be swayed by them.
 - Dig into your fear of death or obscurity, and what will you find? Turn
 some fancy ceremony inside out and you’ll find—what?
+
 ### 28th APRIL => WANTS MAKE YOU A SERVANT
 - Taking the money, wanting the money — proverbially or
 literally — makes you a servant to the people who have it.
+
+### 29th APRIL => WASHING AWAY THE DUST OF LIFE
+- Looking at the beautiful expanse (wide range) of the sky is an antidote to the 
+constant pain, pettiness of earthly concerns (day to day problems / worries). 
+- and it is good and sobering to lose yourself in that as often as you can.
