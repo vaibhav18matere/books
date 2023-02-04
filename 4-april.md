@@ -1,4 +1,4 @@
-# DAILY STOIC
+# Daily Stoic
 
 ## Unbiased Thought
 
