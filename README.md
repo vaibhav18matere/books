@@ -846,3 +846,12 @@ literally — makes you a servant to the people who have it.
 - Looking at the beautiful expanse (wide range) of the sky is an antidote to the 
 constant pain, pettiness of earthly concerns (day to day problems / worries). 
 - and it is good and sobering to lose yourself in that as often as you can.
+
+### 30th APRIL => WHAT IS IN KEEPING WITH YOUR CHARACTER?
+- Character is a powerful defense in a world that would love to be able to
+seduce you, buy you, tempt you, and change you. 
+- If you know what you believe and why you believe it, 
+you’ll avoid poisonous relationships, toxic
+jobs, fair-weather friends, and any number of ills that afflict people 
+who haven’t thought through their deepest concerns. 
+- That’s your education. That’s why you do this work. 
