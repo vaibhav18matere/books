@@ -18,3 +18,9 @@
 gymnasts display their diet and training,nd as the craft of artisans show in what they’ve learned.”
 - The goal is to turn these words into works.
 - When you catch yourself wanting to condescendingly drop some knowledge that you have, grab it and ask: "Would I be better saying words or letting my actions and choices illustrate that knowledge for me?"
+
+### 4th MAY - WHAT’S TRULY IMPRESSIVE
+
+### 5th MAY - YOU ARE THE PROJECT
+
+- Your mind is the asset that must be worked on most—and understood best.
