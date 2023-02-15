@@ -24,3 +24,10 @@ gymnasts display their diet and training,nd as the craft of artisans show in wha
 ### 5th MAY - YOU ARE THE PROJECT
 
 - Your mind is the asset that must be worked on most—and understood best.
+
+### 6th MAY - RIGHTEOUSNESS IS BEAUTIFUL
+
+### 7th MAY - HOW TO HAVE A GOOD DAY
+
+- Here is how to guarantee you have a good day: "do good things".
+- Any other source of joy is outside your control or is non-renewable.
