@@ -32,7 +32,7 @@ gymnasts display their diet and training,nd as the craft of artisans show in wha
 - Here is how to guarantee you have a good day: "do good things".
 - Any other source of joy is outside your control or is non-renewable.
 
-### GOOD AND EVIL? LOOK AT YOUR CHOICES
+### 8th MAY - GOOD AND EVIL? LOOK AT YOUR CHOICES
 
 - “Where is Good? In our reasoned choices. Where is Evil? In our reasoned choices. 
 - Where is that which is neither Good nor Evil? In the things outside of our own reasoned choice.”
