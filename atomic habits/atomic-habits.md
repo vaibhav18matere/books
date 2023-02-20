@@ -177,4 +177,4 @@
 
 39. Habits + Deliberate Practice = Mastery
 
-40. The End !
+40. The End!
