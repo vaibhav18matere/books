@@ -104,3 +104,77 @@
     - is motivating because you see the progress you are making.
 
     - feels satisfying whenever you record another successful instance of your habit.
+
+21. “Don’t break the chain” - is a powerful mantra.
+
+    - Don’t break the chain of workouts and you’ll get fit faster than you’d expect.
+
+    - Don’t break the chain of creating every day and you will end up with an impressive portfolio
+
+22. Measurement is only useful when it guides you and adds context to a larger picture, not
+    when it consumes you.
+
+23. The secret to maximizing your odds of success is to choose the right field of competition.
+    (you want to play a game where the odds are in your favor).
+
+    - The takeaway is that you should build habits that work for your personality.
+
+24. You don’t have to build the habits everyone tells you to build. Choose the habit that best suits you, not the one that is most popular.
+
+    - There is a version of every habit that can bring you joy & satisfaction. Find it.
+
+    - Habits need to be enjoyable if they are going to stick.
+
+25. Turn our attention to finding and designing situations where you’re at a natural advantage.
+
+    - What feels like fun to me, but work to others ?
+
+    - What makes me lose track of time ?
+
+    - Where do I get greater returns than the average person ?
+
+    - What comes naturally to me ?
+
+26. "When you can’t win by being better, you can win by being different "
+
+27. By combining your skills, you reduce the level of competition, which makes it easier to stand out.
+
+28. A good player works hard to win the game everyone else is playing.
+
+29. A great player creates a new game that favors their strengths & avoids their weaknesses.
+
+30. Even if you’re not the most naturally gifted, you can often win by being the best in a very narrow category.
+
+    - The more you master a specific skill, the harder it becomes for others to compete with you.
+
+31. The greatest threat to success is not failure but boredom.
+
+32. The human brain loves a challenge, but only if it is within an optimal zone of difficulty.
+
+    - Anyone can work hard when they feel motivated.
+
+    - It’s the ability to keep going when work isn’t exciting... that makes the difference.
+
+33. Professionals and amateurs
+
+- Professionals stick to the schedule; amateurs let life get in the way.
+
+- Professionals know what is important to them & work toward it with purpose; amateurs get pulled off course by the urgencies of life.
+
+34. The upside of habits is that we can do things without thinking.
+
+35. The downside of habits is that you get used to doing things a certain way & stop paying attention to little errors.
+
+36. You assume you’re getting better because you’re gaining experience. In reality, you are merely reinforcing your current habits - not improving them.
+
+37. A lack of self-awareness is poison.
+
+    - Reflection and review is the antidote.
+
+38. The secret to getting results that lasts is - to never stop making improvements.
+
+    - It’s remarkable what you can build if you just don’t stop.
+
+39. Habits + Deliberate Practice = Mastery
+
+40. The End !
