@@ -29,3 +29,26 @@
 11. The dip is where success happens. - It's easier to quit than to keep going.
 
 12. A few people will choose to do the brave thing and end up best in the world. Informed people will will probably choose to do the mature thing and save their resources for a project they are truely passionate about.
+
+13. The driving force that gets people to pay a specialist is that their disease is unpredictable or hard to diagnose.
+
+14. You gets what you deserve when you embrase the dip and treat it like opportunity.
+
+15. It's human nature to quit when it hurts. But it's that reflex that creates scarcity.
+
+16. Quit in the dip often and you will find yourself becoming a serial quitter, starting amany things but accomplishing little.
+
+17. If you want to be a superstar then you need to find a field with a steep deep - a barrier between those who try and those who succeed.
+
+18. The dip is actually your greatest ally because it makes the project worthwhile and keeps others from competing with you.
+
+19. You must quit the projects and investments and endeavors that don't offer you the same opportunity or those who are not align with your long term vision. It's difficult but important.
+
+20. Reasons why you might fail to become the best in the world.
+- You run out of time.
+- You run out of money.
+- You get scared.
+- You are not serious about it.
+- You lose interest or enthusiasm or settle  for being mediovre.
+- You focus on short term instead of long term and quits when short term gets too hard.
+- You pick the wrong thing - because you don't have talent.
