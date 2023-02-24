@@ -37,3 +37,26 @@ gymnasts display their diet and training,nd as the craft of artisans show in wha
 - “Where is Good? In our reasoned choices. Where is Evil? In our reasoned choices. 
 - Where is that which is neither Good nor Evil? In the things outside of our own reasoned choice.”
 - Ignore everything else. Focus only on your choices ; have clarity and confidence.
+
+## 9th May - CARPE DIEM
+
+- When someone asks you what you did yesterday, do you really want the answer to be “nothing”?
+
+## 10th May - DON’T BE INSPIRED, BE INSPIRATIONAL
+
+## 11th May - GUILT IS WORSE THAN JAIL
+
+## 12th May - KINDNESS IS ALWAYS THE RIGHT RESPONSE
+
+- Most rudeness, meanness, and cruelty are a mask for deep-seated
+weakness.
+
+## 13th May - FUELING THE HABIT BONFIRE
+
+- Think about your activities of the last week as well as what you have
+planned for today and the week that follows. 
+
+- The person you’d like to be, or the person you see yourself as - 
+how closely do  your actions actually correspond to him or her? 
+
+- Which fire are you fueling? Which person are you becoming?
