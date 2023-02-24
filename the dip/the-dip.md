@@ -1,4 +1,4 @@
-1. "Quitters never win and winners never quit" - bad advice. Winners quit all the time. They just qui the right stuff at the right time.
+1. "Quitters never win and winners never quit" - bad advice. Winners quit all the time. They just quit the right stuff at the right time.
 
 2. Extraordinary benefits accure to the tiny minority of people who are able to push just a little bit longer than most of the people.
 
@@ -25,3 +25,7 @@
 9. Cliff is a situation where you can't quit untill you fall off. It's no wonder that people have trouble quitting.
 
 10. The dip creates scarcity; scarcity creates value.
+
+11. The dip is where success happens. - It's easier to quit than to keep going.
+
+12. A few people will choose to do the brave thing and end up best in the world. Informed people will will probably choose to do the mature thing and save their resources for a project they are truely passionate about.
