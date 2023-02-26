@@ -66,3 +66,7 @@ how closely do  your actions actually correspond to him or her?
 - If your happiness is dependent on accomplishing certain goals, what happens if fate intervenes? What if you’re snubbed? If outside events interrupt? What if you do achieve everything but find that nobody is impressed? That’s the problem with letting your happiness be determined by things you can’t control. It’s an insane risk.
 - Our ambition should not be to win, then, but to play with our full effort. Our intention is not to be thanked or recognized, but to help and to do what
 we think is right. Our focus is not on what happens to us but on how we respond. In this, we will always find contentment and resilience.
+
+# 15th May - COUNT YOUR BLESSINGS
+
+- Today, stop trying to get what other people have. Appreciate and take advantage of what you already do have, and let that attitude guide your actions
