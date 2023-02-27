@@ -67,6 +67,14 @@ how closely do  your actions actually correspond to him or her?
 - Our ambition should not be to win, then, but to play with our full effort. Our intention is not to be thanked or recognized, but to help and to do what
 we think is right. Our focus is not on what happens to us but on how we respond. In this, we will always find contentment and resilience.
 
-# 15th May - COUNT YOUR BLESSINGS
+## 15th May - COUNT YOUR BLESSINGS
 
 - Today, stop trying to get what other people have. Appreciate and take advantage of what you already do have, and let that attitude guide your actions
+
+## 16th May - THE CHAIN METHOD
+
+- Success becomes a matter of momentum. Once you get a little, it’s easier to keep it going.
+- Start with one day doing whatever it is, be it managing your temper or wandering eyes or procrastination. 
+- Then do the same the following day and the day after that.
+- Build a chain and then work not to break it. 
+- Don’t ruin your streak.
