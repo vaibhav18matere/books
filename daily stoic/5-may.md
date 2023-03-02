@@ -78,3 +78,7 @@ we think is right. Our focus is not on what happens to us but on how we respond.
 - Then do the same the following day and the day after that.
 - Build a chain and then work not to break it. 
 - Don’t ruin your streak.
+
+## 17th May - THE STOIC IS A WORK IN PROGRESS
+
+- Instead of seeing philosophy as an end to which one aspires, see it as something one applies.
