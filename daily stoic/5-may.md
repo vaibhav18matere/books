@@ -82,3 +82,18 @@ we think is right. Our focus is not on what happens to us but on how we respond.
 ## 17th May - THE STOIC IS A WORK IN PROGRESS
 
 - Instead of seeing philosophy as an end to which one aspires, see it as something one applies.
+
+## 18th MAY - HOW YOU DO ANYTHING IS HOW YOU DO EVERYTHING
+
+- How you handle today is how you’ll handle every day. How you handle this minute is how you’ll handle every minute.
+- “Pay attention to what’s in front of you—the principle, the task, or what’s being portrayed.”
+
+## 19th MAY - LEARN, PRACTICE, TRAIN
+
+- As time passes, we forget what we learned and end up doing the opposite.
+
+## 20th May - QUALITY OVER QUANTITY
+
+- There is no prize for having read the most books before you die. Even if you were the most dedicated reader in the world — a book a day, even your collection would probably never be bigger than a small branch library. You’ll never even come close to matching what’s stored in the servers at Google Books or keep up with the hundreds of thousands of new titles published on Amazon each year.
+- What if, when it came to your reading and learning, you prioritized quality over quantity? What if you read the few great books deeply instead of briefly skimming all the new books? 
+- Your shelves might be emptier, but your brain and your life would be fuller
