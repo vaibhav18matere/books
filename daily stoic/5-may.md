@@ -97,3 +97,7 @@ we think is right. Our focus is not on what happens to us but on how we respond.
 - There is no prize for having read the most books before you die. Even if you were the most dedicated reader in the world — a book a day, even your collection would probably never be bigger than a small branch library. You’ll never even come close to matching what’s stored in the servers at Google Books or keep up with the hundreds of thousands of new titles published on Amazon each year.
 - What if, when it came to your reading and learning, you prioritized quality over quantity? What if you read the few great books deeply instead of briefly skimming all the new books? 
 - Your shelves might be emptier, but your brain and your life would be fuller
+
+## 21st MAY - WHAT KIND OF BOXER ARE YOU?
+
+- What kind of boxer are you if you leave because you get hit? That’s the nature of the sport! Is that going to stop you from continuing?
