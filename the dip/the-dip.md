@@ -1,3 +1,5 @@
+#### [The dip](https://twitter.com/vaibhav_matere/status/1629896054870011906)
+
 1. "Quitters never win and winners never quit" - bad advice. Winners quit all the time. They just quit the right stuff at the right time.
 
 2. Extraordinary benefits accure to the tiny minority of people who are able to push just a little bit longer than most of the people.
