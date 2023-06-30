@@ -101,3 +101,11 @@ we think is right. Our focus is not on what happens to us but on how we respond.
 ## 21st MAY - WHAT KIND OF BOXER ARE YOU?
 
 - What kind of boxer are you if you leave because you get hit? That’s the nature of the sport! Is that going to stop you from continuing?
+
+## 22nd MAY - TODAY IS THE DAY
+
+- "You get what you deserve. Instead of being a good person today, you choose instead to become one tomorrow."
+- "I don’t complain about the lack of time . . . what little I have will go far enough. Today—this day—will achieve what no tomorrow will fail to speak about.
+- We almost always know what the right thing is.
+- We know we should not get upset, that we shouldn’t take this personally, that we should walk to the health food store instead of swinging by the drive-through, that we need to sit down and focus for an hour.
+- The tougher part is deciding to do it in a given moment.
