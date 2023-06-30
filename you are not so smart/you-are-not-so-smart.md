@@ -63,9 +63,7 @@ you miss many, perhaps most, of the influences accumulating on your persona.
 
 **CONFABULATION**
 
-> THE MISCONCEPTION: 
-
-You know when you are lying to yourself.
+> THE MISCONCEPTION:  You know when you are lying to yourself.
 > 
 
 > THE TRUTH: You are often ignorant of your motivations and create fictional
