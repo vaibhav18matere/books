@@ -78,3 +78,6 @@ narratives to explain your decisions, emotions, and history without realizing it
 1. You engage in introspection, and with great confidence you see the history of your life with all the characters and settings and you at the center as protagonist (hero) in the tale of who you are.  
 2. This is all a great, beautiful confabulation (it’s a **disorder wherein patient generates a false memory without the intention of cheating**) 
 ~ and without which you could not function.
+3. How do you separate fantasy from reality? How can you be sure the story of your life both from long ago and minute to minute is true? There is a pleasant vindication to be found when you accept that you can’t.
+- No one can, yet we persist and thrive. Who you think you are is sort of like a movie based on true events, which is not necessarily a bad thing.
+- The details may be embellished, but the big picture, the general idea, is probably a good story worth hearing about.
