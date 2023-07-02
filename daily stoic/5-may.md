@@ -109,3 +109,10 @@ we think is right. Our focus is not on what happens to us but on how we respond.
 - We almost always know what the right thing is.
 - We know we should not get upset, that we shouldn’t take this personally, that we should walk to the health food store instead of swinging by the drive-through, that we need to sit down and focus for an hour.
 - The tougher part is deciding to do it in a given moment.
+
+## 23rd MAY - SHOW ME HOW TO LIVE
+
+- Good life doesn’t consist in its length, but in its use.
+- No matter how many years you’re ultimately given, your life can be clearly and earnestly said to have been a long and full one.
+- We all know someone like that — someone we lost too early but even now think, If I could do half of what they did, I’ll consider my life well lived.
+- The best way to get there is by focusing on what is here right now, on the task you have at hand — big or small.
