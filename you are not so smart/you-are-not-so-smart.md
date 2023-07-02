@@ -8,7 +8,7 @@ as it really is.
 sane.
 > 
 - You have no clue why you act the way you do, choose the things you choose, or think the
-thoughts you think. Instead, you create narratives, little stories to explain why you did, what toy
+thoughts you think. Instead, you create narratives, little stories to explain why you did, what you
 did.
 1. Confirmation Biased - You tend to look for information that confirms your beliefs and ignore
 information that challenges them. This is called confirmation bias. The contents of your
