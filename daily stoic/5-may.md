@@ -116,3 +116,8 @@ we think is right. Our focus is not on what happens to us but on how we respond.
 - No matter how many years you’re ultimately given, your life can be clearly and earnestly said to have been a long and full one.
 - We all know someone like that — someone we lost too early but even now think, If I could do half of what they did, I’ll consider my life well lived.
 - The best way to get there is by focusing on what is here right now, on the task you have at hand — big or small.
+
+## 24th MAY - MAKING YOUR OWN GOOD FORTUNE
+
+- Today, you can hope that good fortune and good luck magically come your way.
+- Or you can prepare yourself to get lucky by focusing on doing the right thing at the right time—and, ironically, render luck mostly unnecessary in the process.
