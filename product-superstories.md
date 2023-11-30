@@ -1,0 +1,41 @@
+- MBA helps in critical and structured thinking which you can apply for businesses or anywhere in life.
+- it’s not just about building the product, perhaps also about understanding what problems you’re solving.
+- Once the “what” and “why” is clear, then you should be able to figure out “how” to build the product.
+- **Design Thinking - CIRCLES framework**
+- *Cracking the PM interview* and *Decode and Conquer*
+- *The Pitch*, *Freakonomics*
+- *Talk to as many customers as possible*. Your most critical problem statements and sometimes even the solutions will lie in your conversations with them.
+- How to reach first 1000 customers ?
+- https://www.lennysnewsletter.com/p/how-the-biggest-consumer-apps-got
+- https://www.akshaypruthi.com/post/10m-installs-in-8-months-revealing-randomly-club-s-secret-sauce
+- Startup related
+- https://www.julian.com/guide/startup/intro
+- growth - https://www.amazon.com/dp/B07DRPGGQ7/ref=dp-kindle-redirect?_encoding=UTF8&btkr=1
+- https://andrewchen.com/how-to-be-a-growth-hacker-an-airbnbcraigslist-case-study/
+- https://help.amplitude.com/hc/en-us/articles/115000465251-Data-Taxonomy-Playbook
+- How to do user research ?
+- https://docs.google.com/document/d/1ighVrAFSUMQNpz4tG4QLOhFvtB9gOQ79BZFaymbDggg/edit
+- Product led retention
+- https://www.akshaypruthi.com/post/stuck-on-your-product-and-don-t-know-what-to-do-next-follow-this
+- blogs and books to read :
+- https://www.lennyrachitsky.com/
+- Good strategy, bad strategy
+- Measure what matters
+- Lean analytics
+- Your goto guide to creating excellent content
+- Explain Data and inspire action through the story
+- Why Buddhism is true
+- Waking Up
+- Influence without authority
+- Instagram pages for UI/UX Inspiration
+- https://www.instagram.com/tranmautritam/
+- https://www.instagram.com/numicor/
+- https://www.instagram.com/ofspace.agency/
+- https://www.instagram.com/ui.colour/
+- https://www.instagram.com/ux.ale/
+- For Inspiration website check https://dribbble.com/
+- UI/UX resourses
+- https://www.pttrns.com/
+- https://color.adobe.com/create/color-wheel
+- https://coolors.co/
+- https://www.materialpalette.com/
